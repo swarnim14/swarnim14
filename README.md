@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **swarnimdighe2002@gmail.com**
 
-- ⚡ Fun fact **Turning coffee into code and code into bugs.**
+- ⚡**Turning coffee into code and code into bugs.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
